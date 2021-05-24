@@ -25,3 +25,5 @@ AND THIS IS BEING USED FOR THE PAST 6 MONTHS - Now go sleep with that. Retarded 
 **Be careful we found .SQLITE injection in his code which he stores the login and password of user credentials as a SIMPLE TEXT to probably sell your data to the other toxic public.
 
 Actions speak louder than words, always remember that.
+
+**P.S. Kameleon - Drug addict who has been to a rehab don't give a fuck time(s) - NO BODY NEEDS YOUR GAYASS CUBAN ATTENTION - GO SELL YOUR CIGGARS ON THE ROAD. POOR FAG
