@@ -26,5 +26,5 @@ AND THIS IS BEING USED FOR THE PAST 6 MONTHS - Now go sleep with that. Retarded 
 
 Actions speak louder than words, always remember that.
 
-**P.S. Kameleon - Drug addict who has been to a rehab don't give a fuck time(s) - NO BODY NEEDS YOUR GAYASS CUBAN ATTENTION - GO SELL YOUR CIGGARS ON THE ROAD. POOR FAG
+**P.S. Kameleon - Drug addict who has been to a rehab don't give a fuck time(s) for cocaine (Find someone in your lonely ass life) - NO BODY NEEDS YOUR GAYASS CUBAN ATTENTION - GO SELL YOUR CIGGARS ON THE ROAD. POOR FAG
 
