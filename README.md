@@ -11,3 +11,5 @@ Better than that, go beg out in the streets. Have some class.
 Did you plan of selling this too? Lol dream about that kid.
 
 Now go live off your donation money, low life idioit.
+
+LEGAL NOTICE HAS BEEN SENT TO IONOS - 1&1 HOSTING.
