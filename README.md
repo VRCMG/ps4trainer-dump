@@ -13,3 +13,5 @@ Did you plan of selling this too? Lol dream about that kid.
 Now go live off your donation money, low life idioit.
 
 LEGAL NOTICE HAS BEEN SENT TO IONOS - 1&1 HOSTING.
+
+ENOUGH IS ENOUGH - Learn to draw the line KID
