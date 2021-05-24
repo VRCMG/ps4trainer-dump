@@ -2,7 +2,7 @@
 
 PS4Trainer.com Dumped with WebRTE/RCE (Game list will keep getting updated)
 
-- Load the cheats through the included payloads.
+- Load the cheats through the included payloads in the /PAYLOADS folder.
 
 No body should pay for free things. For example adding rolls on your discord.
 
