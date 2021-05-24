@@ -24,7 +24,8 @@ AND THIS IS BEING USED FOR THE PAST 6 MONTHS - Now go sleep with that. Retarded 
 
 **Be careful we found .SQLITE injection in his code which he stores the login and password of user credentials as a SIMPLE TEXT to probably sell your data to the other toxic public.
 
-Actions speak louder than words, always remember that.
+# Actions speak louder than words, always remember that.
 
-**P.S. Kameleon - Drug addict who has been to a rehab don't give a fuck time(s) for cocaine (Find someone in your lonely ass life) - NO BODY NEEDS YOUR GAYASS CUBAN ATTENTION - GO SELL YOUR CIGGARS ON THE ROAD. POOR FAG
+# P.S. Kameleon - Drug addict who has been to a rehab don't give a fuck time(s) for cocaine (Find someone in your lonely ass life) - NO BODY NEEDS YOUR GAYASS CUBAN ATTENTION - GO SELL YOUR CIGGARS ON THE ROAD. POOR FAG
 
+# NO BODY WANTED THIS - IT WAS YOUR IDEA. WE HAVE BETTER THINGS IN LIFE TO DO THAN YOU KNOW YOUR COCAINE ADDICTION ISSUES. RESOLVE THAT FIRST IN THE CHANGELOG.
