@@ -26,7 +26,7 @@ AND THIS IS BEING USED FOR THE PAST 6 MONTHS - Now go sleep with that. Retarded 
 
 # Actions speak louder than words, always remember that.
 
-# P.S. Kameleon - Drug addict who has been to a rehab don't give a fuck time(s) for cocaine (Find someone in your lonely ass life) - NO BODY NEEDS YOUR GAYASS CUBAN ATTENTION - GO SELL YOUR CIGGARS ON THE ROAD. POOR FAG
+# P.S. Kameleon - Drug addict who has been to a rehab don't give a fuck time(s) for cocaine (Find someone in your lonely ass life) - NO BODY NEEDS YOUR GAYASS CUBAN ATTENTION - GO SELL YOUR CIGGARS ON THE ROAD. POOR FAG. WHERE IS FUCK SALT? FUCK PS4TRAINER NOW HUH BASTARD. STILL SUFFERING FROM THE MEMORY LOSS I GUESS. ADDICTS.
 
 # NO BODY WANTED THIS - IT WAS YOUR IDEA. TELEGRAMIC BITCH WHO TF ARE YOU EVEN? lol A NOBODY. WE HAVE BETTER THINGS IN LIFE TO DO THAN YOU KNOW YOUR COCAINE ADDICTION ISSUES. RESOLVE THAT FIRST IN THE CHANGELOG.
 SITTING ON 7.02 and PUSHING OUT UPDATES FOR 7.55 pff SHAMELESS LITTLE CUNT
