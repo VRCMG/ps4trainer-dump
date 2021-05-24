@@ -15,3 +15,5 @@ Now go live off your donation money, low life idioit.
 LEGAL NOTICE HAS BEEN SENT TO IONOS - 1&1 HOSTING.
 
 ENOUGH IS ENOUGH - Learn to draw the line KID
+
+AND THIS IS BEING USED FOR THE PAST 6 MONTHS - Now go sleep with that. Retarded kid government hospitals are free of charge.
