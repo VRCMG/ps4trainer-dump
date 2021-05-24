@@ -17,3 +17,11 @@ LEGAL NOTICE HAS BEEN SENT TO IONOS - 1&1 HOSTING.
 ENOUGH IS ENOUGH - Learn to draw the line KID
 
 AND THIS IS BEING USED FOR THE PAST 6 MONTHS - Now go sleep with that. Retarded kid government hospitals are free of charge.
+
+# Proof
+
+ ![Example asshole](https://i.ibb.co/Mkjr7jK/lowlife.png)
+
+**Be careful we found .SQLITE injection in his code which he stores the login and password of user credentials as a SIMPLE TEXT to probably sell your data to the other toxic public.
+
+Actions speak louder than words, always remember that.
