@@ -1,6 +1,6 @@
 # PS4 Trainer Dump
 
-PS4Trainer.com Dumped with WebRTE/RCE (Game list will keep getting updated)
+PS4Trainer Dumped with WebRTE/RCE (Game list will keep getting updated)
 
 - Load the cheats through the included payloads in the /PAYLOADS folder.
 
