@@ -3,6 +3,7 @@
 PS4Trainer Dumped with WebRTE/RCE (Game list will keep getting updated)
 
 - Load the cheats through the included payloads in the /PAYLOADS folder.
+- Tunnel via ngrok or pgrok to achieve an online trainer.
 
 No body should pay for free things. For example adding rolls on your discord.
 
